@@ -1,1 +1,1 @@
-New file has been amde by me
+New file has been made by me
